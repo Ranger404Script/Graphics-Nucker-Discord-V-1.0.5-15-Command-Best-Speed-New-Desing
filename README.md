@@ -1,0 +1,1 @@
+# Graphics-Nucker-Discord-V-1.0.5-15-Command-Best-Speed-New-Desing
